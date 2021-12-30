@@ -1,2 +1,2 @@
 # scratch-hacks
-hack scratch
+*THIS* is the best scratch mod *EVER!*
